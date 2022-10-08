@@ -1,0 +1,1 @@
+god please use this responsibly, I am not responsible for any of your actions, take this as a warning, I do not support any mass dming on discord or any other platform, thankyou so much for any starts as I really like those. see ya. 
