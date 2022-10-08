@@ -1,0 +1,7 @@
+{
+    "captcha_settings": {
+        "captcha_api": "",
+        "captcha_api_key": "",
+        "solve_captchas": false
+    }
+}
